@@ -1,9 +1,9 @@
-[2019 World Choral conducting competition audition](https://www.youtube.com/watch?v=maPzTOLAbv8)
-Choral Conducting Lesson by Dr. Harold Rosenbaum
-DOES AN ORCHESTRA NEED A CONDUCTOR!? - 5 reasons why - 😂 Rainer Hersch
-What a conductor actually does on stage
-The Language of Conducting | Darko Butorac | TEDxUMontana
-Conducting a Choir: 5 Things That Have a BIG Effect | James Stegall | TEDxWesternIllinoisUniversity
-Mahler enthusiasm
-Great conductors in rehearsal
-different types of conductors
+- [2019 World Choral conducting competition audition](https://www.youtube.com/watch?v=maPzTOLAbv8&cc_load_policy=1&cc_lang_pref=he)
+- [Choral Conducting Lesson by Dr. Harold Rosenbaum](https://www.youtube.com/watch?v=_1vwOPFDJ0I&cc_load_policy=1&cc_lang_pref=he)
+- [DOES AN ORCHESTRA NEED A CONDUCTOR!? - 5 reasons why - 😂 Rainer Hersch](https://www.youtube.com/watch?v=ZZ0SlEDX1ug&cc_load_policy=1&cc_lang_pref=he)
+- [What a conductor actually does on stage](https://www.youtube.com/watch?v=z_yIn8V3UcU&cc_load_policy=1&cc_lang_pref=he)
+- [The Language of Conducting | Darko Butorac | TEDxUMontana](https://www.youtube.com/watch?v=xcR1-WhjZys&cc_load_policy=1&cc_lang_pref=he)
+- [Conducting a Choir: 5 Things That Have a BIG Effect | James Stegall | TEDxWesternIllinoisUniversity](https://www.youtube.com/watch?v=h0Rv80r-82w&cc_load_policy=1&cc_lang_pref=he)
+- [Mahler enthusiasm](https://www.youtube.com/watch?v=OoZdwam7wgw&cc_load_policy=1&cc_lang_pref=he)
+- [Great conductors in rehearsal](https://www.youtube.com/watch?v=0otfQGoU13U&cc_load_policy=1&cc_lang_pref=he)
+- [different types of conductors](https://www.youtube.com/watch?v=AgeP8juvMfc&cc_load_policy=1&cc_lang_pref=he)
